@@ -5,4 +5,5 @@ I love to talk and socialize(INT!! please
 I'm a minor!! 15-16
 
 https://qazzieeeee.straw.page/
+
 https://en.pronouns.page/@its.qazzy001
