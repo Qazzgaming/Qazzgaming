@@ -1,4 +1,5 @@
-Hello! I'm Qazzy/kaz and i’m (really) interested in TF2, bugbo, CoD, minecraft YT, fashion and ponytown
+Hello! I'm Qazzy/kaz and i’m (really) interested in TF2, bugbo, CoD, minecraft YT, collecting plushies/rocks, 
+fashion and ponytown
 (will update when I remember more)
 
 
