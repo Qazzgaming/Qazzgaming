@@ -1,15 +1,12 @@
-Hello! I'm Qazzy/kaz and i’m (really) interested in TF2, bugbo, CoD, minecraft YT, collecting plushies/rocks, 
-fashion and ponytown
-(will update when I remember more)
-
+Hello! I'm Qazzy
 
 I love to talk and socialize(INT!! please... ofc if I have DNIUF or whatever please do that)
 
 
-I'm a minor!! 15-16
+I'm a minor!! 15
 
 
 (erm links here)
-https://qazzieeeee.straw.page/
+https://qazzie.straw.page
 
 https://en.pronouns.page/@its.qazzy001
