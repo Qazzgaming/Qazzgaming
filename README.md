@@ -1,4 +1,5 @@
 
+DO NOT COPY my skins. and preferably don't inspo but go ahead if you wanna
 
 I love to talk and socialize(INT!! please... ofc if I have DNIUF or whatever please do that)
 
