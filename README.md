@@ -23,4 +23,5 @@ _ . ~* Boundaries *~ . !!
 ⟡ FRQs !! Yes ♨ ~🥀
 ⟡ DNI !! Basic criteria ♨ ~ 🥀
 
+(CW: my pronouns.cc has small gore/blood references in it)
 https://pronouns.cc/@DmoCmbl4
