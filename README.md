@@ -29,4 +29,3 @@ _ . ~* Boundaries *~ . !!
 https://pronouns.cc/@DmoCmbl4
 
 when he say stuff like : I'll eat you I'm not trying to be threatening or wierd IM SORRYYY
-kintro;; https://bluspytf2.straw.page
