@@ -25,7 +25,4 @@ _ . ~* Boundaries *~ . !!
 ⟡ FRQs !! Yes ♨ ~🥀
 ⟡ DNI !! Basic criteria ♨ ~ 🥀
 
-(CW: my pronouns.cc has small gore/blood references in it)
-https://pronouns.cc/@DmoCmbl4
-
 when he say stuff like : I'll eat you I'm not trying to be threatening or wierd IM SORRYYY
